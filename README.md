@@ -1,2 +1,0 @@
-# keerthi
-love u bangram
